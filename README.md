@@ -2,7 +2,7 @@
 - 👀 I’m interested in Test Automation
 - 🌱 I’m currently learning Full stack 
 - 💞️ I’m looking to collaborate on Java/JS Projects
-- 📫 How to reach me ThairKhaled909@gmail.com
+- 📫 How to reach me ThOk991@Gmail.com
 - 😄 Pronouns: TH-A-e-r
 - ⚡ 
 
